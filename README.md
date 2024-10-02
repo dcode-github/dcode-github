@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **danish.eqbal125@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11xXm_ZhA0H5AcAX8uboPOx27zLko_ZK2/view](https://drive.google.com/file/d/11xXm_ZhA0H5AcAX8uboPOx27zLko_ZK2/view)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/11xXm_ZhA0H5AcAX8uboPOx27zLko_ZK2/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
